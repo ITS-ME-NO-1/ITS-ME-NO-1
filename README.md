@@ -1,0 +1,3 @@
+- 👋 Hi, ITS-ME-NO-1
+- 👀 I’m interested in making M3U 
+- 🌱 I’m currently studying 10th 
